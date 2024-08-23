@@ -1,16 +1,13 @@
-## Hi there 👋
+## BOM DIA, EU SOU FEFO (FELIPE TOZZINI) 😁
 
-<!--
-**Fefomp3/Fefomp3** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+  - ESTUDO NO COLÉGIO ESTADUAL DO PARANÁ E FAÇO CURSOS DO ALURA!!! 🧏‍♂️
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+  - VOU COMOPARTILHAR OS MEUS PROJETOS AQUI 👍👍
+
+  - SOU DE EXATAS, MAS AMO TEATRO 🎭
+
+## VOCÊ PODE ENTRAR EM CONTATO EM:
+
+  FELIPE.TOZZINI.TEIXEIRA@ESCOLA.PR.GOV.BR
+  @FETOZZINI
